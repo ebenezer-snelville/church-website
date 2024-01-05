@@ -1,5 +1,5 @@
 # Iglesia de Dios Ebenezer
-## Stone Mountain, Georgia
+## Snelville, Georgia
 
 **Eng team**
 - TODO
